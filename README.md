@@ -1,0 +1,1 @@
+# -Diwali-Wishes-Wordpress-Shortcode
